@@ -2,4 +2,4 @@
 ### 100% WORK NO HOAX
 
 ``SUBSCRIBE youtube.com/IntiTutorial``
-##### Video Tutorial coming soon
+##### Video Tutorial ==> https://youtu.be/oQrw7QTYm70
